@@ -4,3 +4,4 @@
 mozarella of course 
 roquefort is strong ! 
 reblochon the cushion of the pizza queen ! 
+salt and pepper are mandatory
